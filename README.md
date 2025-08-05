@@ -12,9 +12,13 @@ After taking the welcome kit , we all entered the auditorium hall. The anchor, T
 
 Then, Harsimran Singh( senior) showed the different insights of College through presentation. That ppt shared many key points that a student of GNDEC should know. Like several points -
 -The college was started in 1956 only with a core branch that is Mechanical Engineering, later in several years there is a list of programs in which we can complete BTech through this College. 
--The inauguration of this college was done by Dr Rajendra Prasad who was the first president of India. 
+
+-The inauguration of this college was done by Dr Rajendra Prasad who was the first president of India.
+
 -This is the 70th year of this college's remarkable excellence.
+
 -Here we can participate in several clubs and societies,NCC, NSS and many more. 
+
 
 
 Mr. Sangam Garg Alumni and Topper of 2021-2025 CSE batch shared his success as a software engineer in a tech based company in Gujarat. 
