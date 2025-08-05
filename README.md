@@ -2,7 +2,7 @@
 Manveet Kaur BTech CSE
 
 
-Day 1 of Induction Programme (31 July 2025) 
+# Day 1 of Induction Programme (31 July 2025) 
 
 The Induction Programme started with firstly religious, spiritual , and peaceful emotions through Shabad kirtan in Gurduwara sahib . Having faith in God not only gives an excellent enthusiasm to start this new journey but also gives mental wellness to excel in every field. The shape of Gurduwara Sahib is in the form of ‘Jahaj’.  Melodious Shabad Kirtan, Anand Sahib was very refreshing.This event was managed by the Department of Applied Sciences. 
 
@@ -50,5 +50,36 @@ Alumni, Mr Rakesh Kumar from 1991 batch of ECE , the ADC (Additional Deputy Comm
 
 At the end we all visited our department, labs, and the teachers talked about curriculum, societies, clubs, examinations,  mission, vision, outcomes expected and much more. 
 Finally the day ended giving a great knowledge and good memories. 
+
+# Day 2 of Induction Programme (1 August 2025) 
+
+Firstly the day started with a proficiency test of English and Maths subjects. 
+
+Harleen Kaur , the anchor of the day addressed the guests for the day in the Auditorium Hall. 
+
+Manoj Kumar ,Shivam Kumar and Manish Sharma from ‘Buddy4Study’ talked about all the necessary points for taking a scholarship,how to register and apply for it, who is eligible for it , and the advantages of taking a scholarship. Their platform has given scholarships to so many students till now. Last year they gave financial aid to around 60k students. 
+
+Dr Arashdeep Singh gave the expert lecture on the importance of healthy food, talked about different foods regarding myths, difference in bread, brown bread, wheat grain bread, alternatives of cold drink and beverages, people allergic to wheat, grain etc ,  many students asked their doubts regarding food myths, differences in sugar,white sugar, brown sugar,jaggery etc, allergic food items and so forth. 
+
+A session of Causmic Club helped to tell us about different societies and clubs in the college where we can participate and indulge ourselves in co- curricular activities also which will not only help us to gather some skills but also help us to boost our confidence.Launch of induction activities like making different shapes circle, line with students finalized the remarkable second day of induction activities.
+
+# Day 3 of Induction Programme (2 
+                    August 2025) 
+
+The day started in the Auditorium Hall and sessions held today helped to gain a great knowledge. Today's session motivated us, taught us to learn through activities, and gave many humanitarian values. 
+
+The Chief Guest, Sardar Gurcharan Singh Grewal, member Shiromani Gurdwara Parbandhak Committee (SGPC) and a respected member of the Nankana Sahib Education Trust highlighted the importance of being grounded and helpful at every point in our life. Respect is an important thing that we should give to everyone, then only we will get it back. 
+
+An interesting session by Dr. Jaswinder Singh, a Siksharatan Awardee, who showed everyone  live experiments and innovative approaches to teaching and learning. His interactive method of presentation brought a joyful smile on everyone's face. 
+
+Then, Dr. Priyadarshini, a renowned expert in Universal Human Values (UHV)  shared a powerful perspective on how values-driven engineering and education can lead to more thoughtful, responsible, and impactful professionals. 
+
+And the day ended giving a remarkable set of enlightenment views and memories. 
+
+
+
+
+
+
 
 
