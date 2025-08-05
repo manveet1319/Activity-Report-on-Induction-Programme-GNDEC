@@ -76,7 +76,7 @@ Then, Dr. Priyadarshini, a renowned expert in Universal Human Values (UHV)  shar
 And the day ended giving a remarkable set of enlightenment views and memories. 
 
 
-#Day 4 of Induction Programme (4 August 2025)
+# Day 4 of Induction Programme (4 August 2025)
 
 
 
@@ -86,7 +86,7 @@ At the induction program in the auditorium Dr.  Priyadarshini the expert of  Uni
 Nextly the members of the Causmic club told us about the society, how they gain sponsorships for the events which are under them and their trips and all that .After that a session which was the useful guide for the people who didn't have laptop right now ,it was a guide to help us buy a perfect laptop which could help in our programming and other important things
 
 
-#Day 5 of Induction Programme (5 August 2025) 
+# Day 5 of Induction Programme (5 August 2025) 
 
 This day was not was not as long as other days.Today we had only three lectures one was of English where the Professor Dr Manjot Kaur told us about the syllabus ,the exam pattern and then took the introduction of all the students where we were told to speak about ourselves, our goals, strengths and weakness, hobbies and all that .
 
