@@ -76,6 +76,27 @@ Then, Dr. Priyadarshini, a renowned expert in Universal Human Values (UHV)  shar
 And the day ended giving a remarkable set of enlightenment views and memories. 
 
 
+#Day 4 of Induction Programme (4 August 2025)
+
+
+
+The day started with two lectures in the morning , one of chemistry where Professor Mandeep Kaur  talked about the syllabus of Chemistry for the first year and the importance or role of Chemistry in our everyday life . The next lecture was P2P (PEER TO PEER) where seniors taught us basic programming of C++ language. 
+
+At the induction program in the auditorium Dr.  Priyadarshini the expert of  Universal Human Values taught basic things about life such as the importance of prosperity and happiness in our daily life not only for our body but also for our own self. For example - we wear charming and good clothes for our body but they give happiness and give respect to our ‘self’, so she wanted to say that a human has two major aspects- one is  the body and second is the inner self. Also she highlighted the importance of our intent ,basically if our intention is pure then only our prosperity and happiness is for the whole life, it is continuous, otherwise it is temporary. 
+Nextly the members of the Causmic club told us about the society, how they gain sponsorships for the events which are under them and their trips and all that .After that a session which was the useful guide for the people who didn't have laptop right now ,it was a guide to help us buy a perfect laptop which could help in our programming and other important things
+
+
+#Day 5 of Induction Programme (5 August 2025) 
+
+This day was not was not as long as other days.Today we had only three lectures one was of English where the Professor Dr Manjot Kaur told us about the syllabus ,the exam pattern and then took the introduction of all the students where we were told to speak about ourselves, our goals, strengths and weakness, hobbies and all that .
+
+The next lecture was of (BEEE) Basic Electronics and Electrical Engineering where professor Harpreet Kaur told about the syllabus, circuits, Carbon resistors, RLC circuits. 
+
+Lastly, the maths lecture, Professor Gagandeep Kaur talked about important points to do maths, tips to solve problems, syllabus etc. 
+
+
+
+
 
 
 
