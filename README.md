@@ -63,8 +63,7 @@ Dr Arashdeep Singh gave the expert lecture on the importance of healthy food, ta
 
 A session of Causmic Club helped to tell us about different societies and clubs in the college where we can participate and indulge ourselves in co- curricular activities also which will not only help us to gather some skills but also help us to boost our confidence.Launch of induction activities like making different shapes circle, line with students finalized the remarkable second day of induction activities.
 
-# Day 3 of Induction Programme (2 
-                    August 2025) 
+# Day 3 of Induction Programme (2 August 2025) 
 
 The day started in the Auditorium Hall and sessions held today helped to gain a great knowledge. Today's session motivated us, taught us to learn through activities, and gave many humanitarian values. 
 
