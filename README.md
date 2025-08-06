@@ -103,6 +103,14 @@ Lastly, the maths lecture, Professor Gagandeep Kaur talked about important point
 # Day 6 of Induction Programme (6 August 2025) 
 
 
+The day's events began with a peer-to-peer lecture on C++ basics, operators, and programming fundamentals in the Seminars Workshop Hall. This was followed by a session by Professor Jaswant Singh on AI, machine learning, and ChatGPT. He emphasized that the core of engineering is problem-solving and highlighted the similarities between programming languages, encouraging students to focus on developing their skill sets.
+
+After a break, Sardar Gurcharan Singh Grewal, a Prabandhak Committee member, addressed the students in the auditorium hall, discussing the importance of education and the benefits of college life. He shared his personal experience as an alumnus, highlighting the differences between the old and new college environments, and touched on the hostel and mess facilities.
+
+The next speaker, Dr. Lakhvir Singh Khana, Incharge of the Centre of Multi-Faceted Learning (CML), introduced the society's focus on character development, personality grooming, and communication skills. He invited students to join the CML club, which offers skills training in areas like web development and creative design.
+ Dr. Khana also discussed the Swayam platform, an initiative of MHRD, which offers online courses with certification opportunities. He recommended the "Programming with Generative AI" course, emphasizing its potential benefits for students' careers.
+
+
 
 
 
