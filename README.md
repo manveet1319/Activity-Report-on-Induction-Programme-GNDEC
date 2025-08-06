@@ -100,6 +100,10 @@ Lastly, the maths lecture, Professor Gagandeep Kaur talked about important point
 
 
 
+# Day 5 of Induction Programme (6 August 2025) 
+
+
+
 
 
 
