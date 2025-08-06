@@ -109,6 +109,7 @@ After a break, Sardar Gurcharan Singh Grewal, a Prabandhak Committee member, add
 
 The next speaker, Dr. Lakhvir Singh Khana, Incharge of the Centre of Multi-Faceted Learning (CML), introduced the society's focus on character development, personality grooming, and communication skills. He invited students to join the CML club, which offers skills training in areas like web development and creative design.
  Dr. Khana also discussed the Swayam platform, an initiative of MHRD, which offers online courses with certification opportunities. He recommended the "Programming with Generative AI" course, emphasizing its potential benefits for students' careers.
+Lastly , Dr. Arvind Sir Director of STEP talked little about STEP and ended the todays session. 
 
 
 
