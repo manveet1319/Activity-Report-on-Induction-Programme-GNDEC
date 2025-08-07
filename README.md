@@ -125,6 +125,14 @@ The library reading hall is another valuable resource, offering students a quiet
 Through a comprehensive presentation, Dr. Singh showcased the college's parameters and encouraged students to explore the various opportunities available to them. By highlighting the range of facilities and activities on offer, he inspired students to make the most of their time on campus and to engage fully with college life.
 
 
+Following, Dr. Amit Kamra, Associate Professor of the IT Department and Head of the Digital Marketing Club, took the stage to showcase the club's work. He provided insights into the management of the college's social media accounts across platforms like LinkedIn, Instagram, WhatsApp channels, and Facebook. Dr. Kamra highlighted the creative tools used by the team, including Canva and Photoshop, to design engaging content.
+
+Through a presentation, he demonstrated the various editing techniques and applications utilized by the club members. The highlight of the session was a showcase of videos edited by the students, with a particular mention of an outstanding video created by Navjot Singh, a senior member of the club.
+
+Sir also shared details about the recruitment process for the Digital Marketing Club, which has already begun. He explained that interested students can join the club by scanning a QR code or filling out a Google form. This provided a clear call-to-action for students eager to develop their digital marketing skills.
+
+After the informative session, the students proceeded to get their ID cards made, marking the end of the day's activities.
+
 
 
 
