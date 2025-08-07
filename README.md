@@ -113,6 +113,7 @@ Lastly , Dr. Arvind Sir Director of STEP talked little about STEP and ended the 
 
 
 
+# Day 7 of Induction Programme (7 August 2025) 
 
 
 
