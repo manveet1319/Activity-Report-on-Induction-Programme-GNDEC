@@ -115,6 +115,15 @@ Lastly , Dr. Arvind Sir Director of STEP talked little about STEP and ended the 
 
 # Day 7 of Induction Programme (7 August 2025) 
 
+The day unfolded with a promising start as our Head of Department (HoD) shared valuable insights, emphasizing the importance of adopting good values and practices. She provided practical advice on organizing personal and academic life, such as maintaining separate files for personal and college-related documents. This session set a productive tone for the day. Many students also had the opportunity to introduce themselves in the hall. 
+
+The next segment featured Dr. Parminder Singh, Dean of Student Welfare, who delivered an informative and motivational talk about the various facets of college life. He highlighted the diverse range of opportunities available to students, including participation in societies, clubs, sports, and extracurricular activities like NCC and NSS.Sir also touched upon the college's infrastructure and facilities including high-speed WiFi connectivity, ensuring students can stay connected and access online resources with ease. For emergencies, the college provides an ambulance facility, and a medical facility is also available on campus to cater to students' health needs. A shop for stationery and other essentials is also available, making it convenient for students to access necessary materials.
+
+The college boasts multiple dining options, with 3-4 canteens. In addition to these amenities, the campus features beautifully maintained lawns. 
+The library reading hall is another valuable resource, offering students a quiet and conducive environment to focus on their studies. Sir also encouraged students to take full advantage of these facilities, emphasizing that active participation in college life is essential for developing a well-rounded skill set and achieving academic success.
+
+Through a comprehensive presentation, Dr. Singh showcased the college's parameters and encouraged students to explore the various opportunities available to them. By highlighting the range of facilities and activities on offer, he inspired students to make the most of their time on campus and to engage fully with college life.
+
 
 
 
